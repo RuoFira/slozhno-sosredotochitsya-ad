@@ -1,1 +1,1 @@
-# lozhno-sosredotochitsya-ad
+https://github.com/RuoFira/slozhno-sosredotochitsya-ad
